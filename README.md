@@ -1,1 +1,1 @@
-# sermonNotes
+# Sermon Notes
